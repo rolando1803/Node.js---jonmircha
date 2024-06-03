@@ -1,0 +1,5 @@
+![image](https://github.com/rolando1803/Node.js---jonmircha/assets/55965131/abc6a487-0a72-49f2-a5db-16a6a8ea8067)
+![image](https://github.com/rolando1803/Node.js---jonmircha/assets/55965131/fadcb1ec-ca24-4b27-979b-b57103330850)
+![image](https://github.com/rolando1803/Node.js---jonmircha/assets/55965131/0e9bc4ff-ec3c-405d-8840-a9a91a8d5422)
+![image](https://github.com/rolando1803/Node.js---jonmircha/assets/55965131/4db29658-7cd8-4624-b810-c06016901c44)
+![image](https://github.com/rolando1803/Node.js---jonmircha/assets/55965131/b1774a3e-4f9d-4040-b8e0-87305c4f3f57)
